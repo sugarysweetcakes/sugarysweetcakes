@@ -1,19 +1,13 @@
-⠀<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=໒ྀ𝄁​̻̻𓋭​͜゛&color=e1cef7)
+⠀<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=+𓆩♡𓆪+&color=bfbfbf)
 
-⠀<p align="center"><img width="1500" height="500" alt="4834" src="https://github.com/user-attachments/assets/6c043f6f-51fe-48cf-a7c8-2eb891f60748" />
+⠀<p align="center"><img width="563" height="243" alt="5644" src="https://github.com/user-attachments/assets/a3e08276-2faf-4953-a62a-afd621e5da46" />
 
+
+### <p align="center">ժҽlílαհ ⠀ ε𓈒ᩍ ۫ഒㅤ݃𐬏ﾟׅ 𐅛 ֯
+### <p align="center">⠀۫   ᱒ᩘ͟   ˳⠀⠀sҽղsíԵíѵҽ⠀⠀𖹭⠀⠀í́աc ⠀⠀⋆⑅˚₊
+### <p align="center">꒰ ̫̫ ֪֪݃ ｡ ݁ ⩊ ͜ ̣̣̥ᣟ݂ ׁׅ֒֯໒
 
 ##
 
-<p align="center">delilah ⠀ (♡ˊ͈ ꒳ ˋ͈) 
-<p align="center">dumpling + onigiri enthusiast
-<p align="center">sweetcore luvr
-<p align="center">⠀ ͜| ͜͝ ︭𓈒ֵ۫ ֺ ͜͜ ݃ ྀི꒱ྀ ̣̣̥ ♪ ̫   
 
-⠀⠀
-
-
-#
-
-
-⠀<p align="center">[新book⠀𓈒  𖥨᩠ׄ݁ ⑅ ݁𓈒݂݂݂݂](https://sugarysweetcakes.atabook.org) 
+### ⠀<p align="center">[⠀𐂯 ᣟ𓏼ᩙㆍ๑᪲͜ᣟ݂𓂂⠀⠀新ճօօk⠀𓈒  𖥨᩠ׄ݁](https://sugarysweetcakes.atabook.org) 
